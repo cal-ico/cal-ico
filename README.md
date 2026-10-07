@@ -4,4 +4,4 @@ Sam or Alfie.
 
 ASD-1, mute. Sam IRL/Heavy fiction kin from Animal Hospital.
 
-Do NOT know my city, my social medias or my face. You will be blocked. I'm not the type to make friends.
+Do NOT ask for my city, my social medias or my face. You will be blocked. I'm not the type to make friends.
